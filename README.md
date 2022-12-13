@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ECcentricOG
+- 👀 I’m interested in Football
+- 🌱 I’m currently learning Computer Science Engineering
+-     7767039576
+-     umeshunde03@gmail.com
